@@ -1,2 +1,2 @@
 # hello-world
-Is this real life? Is this just fantasy? Caught in a landslide, no escape from reality.
+It's your day, it's your shining day, all your dreams will come true.
